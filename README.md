@@ -1,2 +1,2 @@
 # grupoxd
- Laboratorio de Ingenieria en sistemas
+ Laboratorio de Ingenieria en sistemas uwu
